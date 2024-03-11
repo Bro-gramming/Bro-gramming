@@ -5,7 +5,7 @@
 - 📫 How to reach me ... bobsads.ad1@gmail.com
 - 😄 Pronouns: ... he
 - ⚡ Fun fact: ...
-im under 14
+im under 18
 <!---
 Bro-gramming/Bro-gramming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
